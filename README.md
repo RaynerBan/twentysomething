@@ -1,6 +1,6 @@
 twentysomething
 ===============
-##TED Vedio
+##TED Vedio dis
 [**20岁光阴不再来@TED**](http://v.163.com/movie/2013/3/U/A/M937IFCGB_M937IJLUA.html)  
 >  * Whatever it is you want to change about yourself, now it's the time to change it.
 >  * do and understand
