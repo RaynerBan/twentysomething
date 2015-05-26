@@ -1,6 +1,6 @@
 twentysomething
 ===============
-##TED Vedio dis
+##TED Vedio 
 [**20岁光阴不再来@TED**](http://v.163.com/movie/2013/3/U/A/M937IFCGB_M937IJLUA.html)  
 >  * Whatever it is you want to change about yourself, now it's the time to change it.
 >  * do and understand
@@ -17,7 +17,7 @@ So，in some way, `writing it down` **MUST** be helpful especially for me。
   并不影响当前想做能做的事情，想做到的只是**be prepared, be passionate, be patient**.     `(2014.09.14@HZ 守一阁)`
 
 
-
+> 直面恐惧
    
 
 ## My twentysomething -> Outstanding F2Eer
