@@ -17,7 +17,7 @@ So，in some way, `writing it down` **MUST** be helpful especially for me。
   并不影响当前想做能做的事情，想做到的只是**be prepared, be passionate, be patient**.     `(2014.09.14@HZ 守一阁)`
 
 
-> 直面恐惧：进击
+> 直面恐惧：进击！！！
    
 
 ## My twentysomething -> Outstanding F2Eer
